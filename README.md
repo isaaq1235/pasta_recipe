@@ -1,0 +1,2 @@
+# Masala Pasta Recipe 
+Masala pasta and masala noodles are a favorite with many folks including kids. This recipe gives a tasty masala pasta and makes for a good brunch, snack or a light dinner. You can also pack it in the kids tiffin box.
