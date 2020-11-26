@@ -1,4 +1,4 @@
-# How to make lava cake? 
+# How to make Masala Pasta? 
 
 1. \1. Heat 4 cups water along with ½ teaspoon salt till it comes to a boil.
 
